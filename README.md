@@ -1,2 +1,0 @@
-# guarda-municipal
-redesing
